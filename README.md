@@ -1,0 +1,1 @@
+My first job. I was so excited about the possibilities that git was excited yesterday. 19.11.25.
